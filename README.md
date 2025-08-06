@@ -1,1 +1,0 @@
-# gbd1024.github.io
